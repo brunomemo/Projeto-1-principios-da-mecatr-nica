@@ -1,1 +1,0 @@
-# Projeto-1-principios-da-mecatr-nica
